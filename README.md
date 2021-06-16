@@ -8,6 +8,9 @@ https://docs.google.com/spreadsheets/d/11Ohs9rA1oDS9Nk-iYw-Tlgal6x8AGMAqGZpRuhj0
 ### Silks hotel group 晶華
 https://shop.silkshotelgroup.com/RT
 
+### 瓦城
+https://wa10-thaitown.oddle.me/zh_TW/
+
 ## Government
 
 ### PDIS (唐鳳)
